@@ -6,15 +6,15 @@
 
 ★ 🪨 - cole , master of earth . big fan of cake too ! don't know how i EVER gave up cake for some time .. doubles dni as always . 6teen n counting , half polish , half arab ! pretty cool right ★
 
-![cole-ninjago-ninjago-season-8](https://github.com/user-attachments/assets/d6f64c0b-a3da-47c4-b56b-7ed41ff1390c)
+—
 
 ★ 🎭 - online , go ahead n talk to me //🌙 - afk , but c + h available , you can wait till im back // ⛔ - not welcoming , i probably won't talk to anyone but i rarely am in this mood so yea ^_^ ★
 
-![cole-ninjago](https://github.com/user-attachments/assets/4130363e-0e00-4337-9f34-8c29c1696632)
+—
 
 ★ 💥 - drawing and history are my main thing , same with reading , i dont mind sharing or yapping with anyone about it ! im actually pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot , i dont really care about strangers criticising me for this so whatever bro ★
 
-![216108](https://github.com/user-attachments/assets/1a2c72f8-da99-4da2-84db-7a02b664f57d)
+—
 
 ★ 💌 - aahh , i like lavashipping the MOST , also technoshipping and early season bruise but not anything else reallyyyy ,, apart from canon stuff like jaya or pixane obviously those r fine . apart from those ships dni . more info on main acc ★
 
