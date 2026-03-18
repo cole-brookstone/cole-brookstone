@@ -6,6 +6,8 @@
 
 ★ 🪨 - cole , master of earth . big fan of cake too ! don't know how i EVER gave up cake for some time .. doubles dni as always . 6teen n counting , half polish , half arab ! pretty cool right ★
 
+![cole-ninjago-ninjago-season-8](https://github.com/user-attachments/assets/d6f64c0b-a3da-47c4-b56b-7ed41ff1390c)
+
 ★ 🎭 - online , go ahead n talk to me //🌙 - afk , but c + h available , you can wait till im back // ⛔ - not welcoming , i probably won't talk to anyone but i rarely am in this mood so yea ^_^ ★
 
 ![cole-ninjago](https://github.com/user-attachments/assets/4130363e-0e00-4337-9f34-8c29c1696632)
