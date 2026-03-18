@@ -2,7 +2,7 @@
 
 ## Nice to meet ya , kid . I got your back . And for the record , there ain't nothing in this world that I'm afraid of !
 
-.
+![cole-ninjago](https://github.com/user-attachments/assets/2c5f5494-6fb9-452b-8107-0f0e68879dc9)
 
 ★ 🪨 - cole , master of earth . big fan of cake too ! don't know how i EVER gave up cake for some time .. 6teen n counting , half polish , half arab ! pretty cool right ★
 
@@ -12,7 +12,8 @@
 
 ★ 💌 - aahh , i like lavashipping the MOST , also technoshipping and early season bruise but not anything else reallyyyy ,, apart from canon stuff like jaya or pixane obviously those r fine . apart from those ships dni ,, thank you ★
 
-.
+![680ae277f746fc16ed49ce37df28bbd5](https://github.com/user-attachments/assets/fc3ded0d-dc14-406e-96e5-159fce19ff4b)
+
 
 ## Before you run off again , just remember , we're a _team_ !
 
