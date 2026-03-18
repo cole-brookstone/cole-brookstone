@@ -4,7 +4,9 @@
 
 .
 
-★ 🪨 - cole , master of earth . big fan of cake too ! don't know how i EVER gave up cake for some time .. ★
+★ 🪨 - cole , master of earth . big fan of cake too ! don't know how i EVER gave up cake for some time .. 6teen n counting , half polish , half arab ! pretty cool right ★
+
+★ 💥 - drawing and history are my main thing , same with reading , i dont mind sharing or yapping with anyone about it ! im actually pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot ... take it or leave it i dont really care ★
 
 ★ 🎭 - online , go ahead n talk to me //🌙 - afk , but c + h available , you can wait till im back // ⛔ - not welcoming , i probably won't talk to anyone but i rarely am in this mood so yea ^_^ ★
 
