@@ -12,7 +12,9 @@
 
 ★ 💥 - drawing and history are my main thing , same with reading , i dont mind sharing or yapping with anyone about it ! im actually pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot , i dont really care about strangers criticising me for this so whatever bro ★
 
-★ 💌 - aahh , i like lavashipping the MOST , also technoshipping and early season bruise but not anything else reallyyyy ,, apart from canon stuff like jaya or pixane obviously those r fine . apart from those ships dni ★
+![216108](https://github.com/user-attachments/assets/1a2c72f8-da99-4da2-84db-7a02b664f57d)
+
+★ 💌 - aahh , i like lavashipping the MOST , also technoshipping and early season bruise but not anything else reallyyyy ,, apart from canon stuff like jaya or pixane obviously those r fine . apart from those ships dni . more info on main acc ★
 
 ![680ae277f746fc16ed49ce37df28bbd5](https://github.com/user-attachments/assets/fc3ded0d-dc14-406e-96e5-159fce19ff4b)
 
