@@ -10,7 +10,7 @@
 
 ![cole-ninjago](https://github.com/user-attachments/assets/4130363e-0e00-4337-9f34-8c29c1696632)
 
-★ 💥 - drawing and history are my main thing , same with reading , i dont mind sharing or yapping with anyone about it ! im actually pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot ... take it or leave it i dont really care ★
+★ 💥 - drawing and history are my main thing , same with reading , i dont mind sharing or yapping with anyone about it ! im actually pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot , i dont really care about strangers criticising me for this so whatever bro ★
 
 ★ 💌 - aahh , i like lavashipping the MOST , also technoshipping and early season bruise but not anything else reallyyyy ,, apart from canon stuff like jaya or pixane obviously those r fine . apart from those ships dni ★
 
