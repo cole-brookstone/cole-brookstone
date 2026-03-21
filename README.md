@@ -2,7 +2,7 @@
 
 ## Nice to meet ya , kid . I got your back . And for the record , there ain't nothing in this world that I'm afraid of !
 
-![7x1zie](https://github.com/user-attachments/assets/c21d9bff-2a68-4aec-9fa0-59dfb2a6c6cb)
+![tumblr_27dc8f488a8837991540a0062bd0a99f_49a3547e_640](https://github.com/user-attachments/assets/eb9573d2-2289-454c-ae11-81756c71eca0)
 
 ★ 🪨 - cole , master of earth . big fan of cake too ! don't know how i EVER gave up cake for some time .. doubles dni as always . 6teen n counting , half polish , half arab ! pretty cool right ★
 
