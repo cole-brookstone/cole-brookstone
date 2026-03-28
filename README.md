@@ -12,7 +12,7 @@
 
 —
 
-★ 💥 - drawing and history are my main thing , same with reading , i dont mind sharing or yapping with anyone about it ! im actually pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot , i dont really care about strangers criticising me for this so whatever bro ★
+★ 💥 - drawing , music , food and history are my main thing , same with reading , i dont mind sharing with anyone about it ! im pretty enthusiastic on talking about my interests and listening to others about theirs , but quick warning , i do talk a lot , i dont really care about strangers criticising me for this so whatever bro ★
 
 —
 
